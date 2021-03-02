@@ -1,4 +1,4 @@
-### Hi buddy 👋
+
 
 I'm Duncan Mwanik. I design stuff. Stuff that might need electronics/hardware, embedded programming, Machine Learning, Python Apps and Cloud Computing.
 I was a Mechatronics student. That was before they started teaching me stuff I didn't want to know. I took a break, and together with my skills, I fight crime! Haha..
