@@ -1,2 +1,1 @@
-
-Heyya amigo! Wanna make stuff? Then play with them? Then probably forget about them for a couple of months. Then get back to them and actually build something great out them that rules? Good luck with that buddy...
+Make stuff? Then play with them? Then probably forget about them for a couple of months. Then wonder who made them.
