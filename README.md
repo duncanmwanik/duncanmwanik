@@ -1,1 +1,1 @@
-Make stuff? Then play with them? Then probably forget about them for a couple of months. Then wonder who made them.
+Make stuff. Play with stuff. Put them here. Forget about them for a couple of months. Come back and panic coz you don't get your own code...tis! :sweat_smile:
