@@ -1,15 +1,10 @@
-Hey there 👋
+![alt text](https://steamuserimages-a.akamaihd.net/ugc/961986241858134321/A0876BC66F975F242FCDA09235DC1DC734FE50AD/?imw=512&imh=512&ima=fit&impolicy=Letterbox&imcolor=%23000000&letterbox=true)
 
-I fancy myself a maker of all sorts, of all nice and of all possible 😄.
- 
-Let's talk about:
-1. PCB Design using KiCAD or EasyEda.
-2. Firmware Development using C, C++, Python or Arduino.
-3. Microcontrollers: ESPs, Atmels, STMs and more.
-4. Communication using BLE, MQTT, LoraWAN, GSM, I2C, UART and many more.
-5. OTA updates using various providers.
-6. Cross-platform app development using FLutter.
-7. Rapid prototyping.
+So, you find yourself here again compadre? Eeey?
 
+Then, do not worry my friend. We shall get lost together, in the world, of make-believe!
+
+Welp,
+I fancy myself a maker of all sorts, and of all nice! 😄.
 
 
