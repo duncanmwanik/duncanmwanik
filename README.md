@@ -2,11 +2,11 @@
 
 So, you find yourself here again compadre? Eeey?
 
-Then, do not worry my friend. We shall get lost together, in the world, of make-believe!
-
-...
+In the world, of make-believe!
 
 Welp,
-I fancy myself a maker of all sorts, and of all nice! 😄.
+I fancy myself a maker of all sorts, and of all nice! 😄
+
+Good humans rock!
 
 
