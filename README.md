@@ -2,11 +2,9 @@
 
 So, you find yourself here again compadre? Eeey?
 
-In the world, of make-believe!
+In a world of make-believe, good humans rock!
 
 Welp,
 I fancy myself a maker of all sorts, and of all nice! 😄
-
-Good humans rock!
 
 
