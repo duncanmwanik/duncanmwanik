@@ -1,4 +1,4 @@
-![alt text](https://steamuserimages-a.akamaihd.net/ugc/961986241858134321/A0876BC66F975F242FCDA09235DC1DC734FE50AD/?imw=200&imh=200&ima=fit&impolicy=Letterbox&imcolor=%23000000&letterbox=true)
+![alt text](https://i.pinimg.com/200x/c2/ba/56/c2ba5686755f1db5f1f46c72475b852f.jpg)
 
 Si compadre, you find yourself here again?
 
