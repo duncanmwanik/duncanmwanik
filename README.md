@@ -2,9 +2,6 @@
 
 Compadre, you find yourself here, again?
 
-be good human...
-
 Now,
-I fancy myself a maker of all sorts, and, of all nice! 😄
-
+I fancy myself a maker of all sorts, and mostly, of all nice! 😄
 
