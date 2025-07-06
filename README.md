@@ -4,5 +4,5 @@ Hello, I am Señor Dev.
 
 Compadre, no? no?
 
-I fancy myself a maker of all sorts, and mostly, of all nice! 😄
+I fancy myself a maker of all sorts, and of much nice! 😄
 
